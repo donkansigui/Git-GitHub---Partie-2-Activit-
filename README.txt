@@ -1,0 +1,1 @@
+Celui qui n'a pas d'objectifs ne risque pas de les atteindre
